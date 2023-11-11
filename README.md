@@ -1,1 +1,1 @@
-# Ofentsekoloane-github.io
+# ramoshidi thechnical school-github.io
